@@ -1,0 +1,1 @@
+# cryptoscam2.0
